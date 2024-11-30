@@ -2,10 +2,10 @@
 ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
 </p>
 <p align="center">
-<img src=https://github.com/user-attachments/assets/2faca7d6-f77a-45bb-a2c3-19517445d329>
+<img src=https://files.catbox.moe/w4fq9r.jpg>
 </p>
 <p align="center">
-𝙏𝙎𝙐𝙂𝙄𝙉𝙊 𝙃𝘼𝙍𝙐
+𝙐𝙎𝙃𝙄𝙍𝙊𝙉𝙊 𝙁𝙐𝙔𝙐
 </p>
 <p align="center">
 ＞　 ◞ ◞ 　 ⟡　 ◞ ◞ 　 ＜
